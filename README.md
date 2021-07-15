@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @pearlHhh
 - 👀 I’m interested in dancing ggg
-- 🌱 I’m currently learning ai
 - 📫 How to reach me :pearl15007141299@126.com,I seldom read the email,but i willreply when i saw it
 
 <!---
