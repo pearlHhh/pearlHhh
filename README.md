@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pearlHhh
+- 👋 Hi, I’m @pearl
 - 👀 I’m interested in dancing ggg
 - 📫 How to reach me :pearl15007141299@126.com,I seldom read the email,but i willreply when i saw it
 
